@@ -2,4 +2,4 @@
 
 ---
 
-Obaaaaaaaa, melhorando o README 🤩🤩🤩
+Melhorando o README 🤩🤩🤩
